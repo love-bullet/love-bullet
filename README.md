@@ -12,4 +12,4 @@ nana  ‎  ‎ ‎  ‎ ‎  ‎s(he)  ‎  ‎ ‎  ‎ ‎  ‎yumejoshi  ‎�
 
 </br>
 
-<a href="https://arab.org">free palestine</a> ‎  ‎  ‎  ‎  ‎ &&. ‎  ‎‎   ‎  ‎  ‎  ‎ <a href="">others.</a>
+<a href="https://arab.org">free palestine</a> ‎  ‎  ‎  ‎  ‎ &&. ‎  ‎‎   ‎  ‎  ‎  ‎ <a href="https://wearethechange.carrd.co/">others.</a>
