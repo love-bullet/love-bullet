@@ -1,7 +1,7 @@
 <div align="center">
 
-  <a href="https://rentry.co/lesbianism">rentry</a> ‎ 𓈒 ‎ 
-  <a href="https://rentry.co/2ndyear">mw</a> ‎  ‎ 𓈒
+  <a href="https://rentry.co/lesbianism">rentry</a> ‎ ‎  𓈒  ‎ ‎ 
+  <a href="https://rentry.co/2ndyear">mw</a> ‎  ‎ 𓈒 ‎  ‎ 
   <a href="https://signalis.atabook.org">ata</a>
 
 
