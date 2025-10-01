@@ -10,6 +10,6 @@
 <div align="center">
 nana  ‎  ‎ ‎  ‎ ‎  ‎s(he)  ‎  ‎ ‎  ‎ ‎  ‎yumejoshi  ‎‎ &&.  ‎  ‎ ‎ RI999 ‎ enthusiastic
 
-english is not my 1st language,,  ‎  ‎  ‎  ‎  ‎ 🇧🇷 ‎  ‎  ‎  ‎ pt-br/eng
+english is not my 1st language,,  ‎  ‎  ‎  ‎  ‎ E. UTC-3 ‎  ‎  ‎  ‎ pt-br/eng
 
 <a href="https://arab.org">free palestine</a> ‎  ‎  ‎  ‎  ‎ &&. ‎  ‎‎   ‎  ‎  ‎  ‎ <a href="https://wearethechange.carrd.co/">others.</a>
