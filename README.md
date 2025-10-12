@@ -8,8 +8,8 @@
   ‎  ‎ ‎  ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎  ‎  ‎ ‎  ‎  ‎   ‎  넌 날 사랑하지 않아 ,  ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  그러나 넌 <a href="https://youtu.be/nTk15Sd_RDM?si=0x41RcppwsuZuoT7">아직도 나를</a> . ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ 
 
 <div align="center">
-nana  ‎  ‎ ‎  ‎ ‎  ‎s(he)  ‎  ‎ ‎  ‎ ‎  ‎yumejoshi  ‎‎ &&.  ‎  ‎ ‎ RI999 ‎ enthusiastic
+that one himejoshi on your tree bro😂
 
-english is not my 1st language,,  ‎  ‎  ‎  ‎  ‎ 🇧🇷 ‎  ‎  ‎  ‎ pt-br/eng
+pt-br / eng
 
 <a href="https://arab.org">free palestine</a> ‎  ‎  ‎  ‎  ‎ &&. ‎  ‎‎   ‎  ‎  ‎  ‎ <a href="https://wearethechange.carrd.co/">others.</a>
