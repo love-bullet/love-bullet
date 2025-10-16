@@ -1,7 +1,7 @@
 <div align="center">
   ‎  ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎  ‎  ‎ ‎  ‎  ‎   ‎  <a href="https://rentry.co/ANAVITORIA">rentry</a> ‎  ‎  ‎  ‎  ‎  ‎  ‎‎   ‎  ‎  ‎  ‎ <a href="https://green-lesbians.straw.page">straw</a> ‎  ‎  ‎  ‎  ‎  ‎ ‎  ‎  ‎ ‎  ‎   ‎ <a href="https://rentry.co/the-giver">urls</a>
 
-<img src="https://github.com/user-attachments/assets/e00e2a84-3f9d-48d5-ac1b-8d80ab75144c" alt="lain" width="400"/>
+<img src="https://github.com/user-attachments/assets/78d63e49-224e-4034-9387-7cfc003064ed" alt="nana" width="400"/>
 
 </div>
 
