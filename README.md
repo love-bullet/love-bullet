@@ -8,8 +8,6 @@
 </div>
 
 <div align="center">
-that one himejoshi on your tree bro😂
 
-pt-br / eng
 
 <a href="https://arab.org">free palestine</a> ‎  ‎  ‎  ‎  ‎ &&. ‎  ‎‎   ‎  ‎  ‎  ‎ <a href="https://wearethechange.carrd.co/">others.</a>
