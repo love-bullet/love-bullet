@@ -9,8 +9,6 @@
 
 <div align="center">
 
-oomfs 
-
 <a href="https://github.com/hexstrap">jonas</a>   ‎ <a href="https://github.com/nataliescatorccio">leo</a>    ‎<a href="https://github.com/retrobive">ally</a>   ‎ <a href="https://github.com/vysters">vy</a>       ‎‎<a href="https://github.com/umbrallae">rune</a>    ‎<a href="https://github.com/5uguro">megz</a>    ‎<a href="https://github.com/dearqupid">laurel</a>
 
 <a href="https://arab.org">free palestine</a> ‎  ‎  ‎  ‎  ‎ &&. ‎  ‎‎   ‎  ‎  ‎  ‎ <a href="https://wearethechange.carrd.co/">others.</a>
