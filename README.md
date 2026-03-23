@@ -2,6 +2,6 @@
 
 <div align="center">
 
-<img src="" alt="nana" width="400"/>
+<img src="" alt="" width="400"/>
 
 </div>
