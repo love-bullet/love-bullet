@@ -2,7 +2,7 @@
 
 <img src="https://komarev.com/ghpvc/?username=love-bullet&label=SUPERST☆R&style=flat-square">
 &nbsp;&nbsp; 
-<strong>DO IT WELL</strong>
+<img width="110" height="20" alt="1000374145" src="https://github.com/user-attachments/assets/5b5c342a-8c5b-4f55-98db-8121552f6468" />
 
 <br>
 
