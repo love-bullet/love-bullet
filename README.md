@@ -6,7 +6,7 @@
 
 <br>
 
-<a href="https://isokania.atabook.org/">
+<a href="https://jeevas.atabook.org/">
   <span style="color: inherit;">atabook</span>
 </a>
 &nbsp;&nbsp;
