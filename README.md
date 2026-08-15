@@ -3,7 +3,7 @@
 <td width="55%" align="center">
 <img src="https://komarev.com/ghpvc/?username=love-bullet&label=heart&style=flat-square" />
 
-<a href="#">do it well</a>
+do it well
 
 <a href="#">ata rentry</a>
 
