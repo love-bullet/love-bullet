@@ -6,9 +6,9 @@
 
 <br>
 
-<a href="#https:isokania.atabook.org/">atabook</a>
+<a href="https:isokania.atabook.org/">atabook</a>
 &nbsp;&nbsp;
-<a href="#https://rentry.co/sucessor">rentry</a>
+<a href="https://rentry.co/sucessor">rentry</a>
 <br>
 <img width="280" src="https://github.com/user-attachments/assets/f2d7d4a3-e321-4f55-b201-0f46560e12bf">
 <br>
