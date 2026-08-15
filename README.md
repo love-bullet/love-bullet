@@ -1,16 +1,17 @@
-<table cellspacing="0" cellpadding="0">
-<tr>
-<td width="55%" align="center">
-<img src="https://komarev.com/ghpvc/?username=love-bullet&label=heart&style=flat-square" />
+<div align="center">
 
-do it well
+<img src="https://komarev.com/ghpvc/?username=love-bullet&label=SUPERST☆R&style=flat-square">
+&nbsp;&nbsp; 
+<strong>DO IT WELL</strong>
 
-<a href="#">ata rentry</a>
+<br>
 
-</td>
+<a href="#https:isokania.atabook.org/">atabook</a>
+&nbsp;&nbsp;
+<a href="#https://rentry.co/sucessor">rentry</a>
+<br>
+<img width="280" src="https://github.com/user-attachments/assets/f2d7d4a3-e321-4f55-b201-0f46560e12bf">
+<br>
+i'm not cute anymore (ノ_＜。)
 
-<td width="45%" align="center">
-<img width="100%" height="100%" alt="1000373182" src="https://github.com/user-attachments/assets/f2d7d4a3-e321-4f55-b201-0f46560e12bf" />
-</td>
-</tr>
-</table>
+</div>
