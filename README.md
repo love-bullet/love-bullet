@@ -1,3 +1,4 @@
+
 <div align="center">
 
 <img src="https://komarev.com/ghpvc/?username=love-bullet&label=SUPERST☆R&style=flat-square">
@@ -22,7 +23,8 @@
 
 <i>i'm not cute anymore (ノ_＜。)</i>
 
-<img width="787" height="166" alt="1000374940" src="https://github.com/user-attachments/assets/d78fa015-f004-4472-8774-ae3078465236" />
+<img width="300" height="100" alt="1000374940" src="https://github.com/user-attachments/assets/d78fa015-f004-4472-8774-ae3078465236" />
+
 am i tuff 😳😳
 
 </div>
