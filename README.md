@@ -1,7 +1,7 @@
 <div align="center">
 
-<a href="jeevas.atabook.org">atabook</a> ·
-<a href="rentry.co/sucessor">rentry</a>
+<a href="https://jeevas.atabook.org">atabook</a> ·
+<a href="https://rentry.co/sucessor">rentry</a>
 
 will and hannibal are gay
 
