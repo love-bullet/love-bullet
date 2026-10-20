@@ -1,6 +1,6 @@
 <div align="center">
 
-<a href="https://jeevas.atabook.org">atabook</a> ·
+<a href="https://jeevas.atabook.org">atabook</a>ㅤㅤㅤㅤ
 <a href="https://rentry.co/sucessor">rentry</a>
 
 c+h always welcomed ♡
