@@ -7,7 +7,7 @@
 
 c+h always welcomed ♡
 
-usually offtab . whisper 2 get my attention~
+usually offtab whisper 2 get my attention~
 
 </div>
 
