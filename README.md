@@ -10,7 +10,7 @@ c+h always welcomed ♡
 usually offtab whisper 2 get my attention~
 
 
-<img width="500" height="374" alt="1000425889" src="https://github.com/user-attachments/assets/a83540cb-e72a-4907-af28-f71c16f9f5e9" />
+<img width="200" height="200" alt="1000425889" src="https://github.com/user-attachments/assets/a83540cb-e72a-4907-af28-f71c16f9f5e9" />
 
 boi u aurafarming for what 
 
