@@ -10,8 +10,9 @@ c+h always welcomed ♡
 usually offtab whisper 2 get my attention~
 
 
-please let me know beforehand if you plan 
-on adding me to these nominations things. thank you
+please let me know beforehand if you plan on 
+
+adding me to these nominations things. thank you
 
 </div>
 
