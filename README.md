@@ -17,10 +17,11 @@
 ᘓ︵ᯠ ⑅ ᯄ
 
 <br><br>
-nana / mail he any
+nana ♱ mail 
+ʰᵉ ᵃⁿʸ
 
 
-<a href="https://jeevas.atabook.org">atabook</a> <a href="https://rentry.co/sucessor">rentry</a>
+<a href="https://rentry.co/sucessor">rentry</a> <a href="https://rentry.co/dva6wdas">extended</a>
 
 <br><br>
 
