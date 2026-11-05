@@ -10,7 +10,7 @@ i like kaneki and matt a normal ammount
 
 <details>
     <summary>nominations</summary>
-    @pt-hall-of-media @pt-awards @piddlesjet 
+    <a href="https://github.com/pt-hallf-of-media">@pt-hall-of-media</a> <a href="https://github.com/pt-awards">@pt-awards</a> <a href="https://github.com/piddlesjet">@piddlesjet</a> 
 </details>
 
 </div>
