@@ -9,7 +9,7 @@ i like kaneki and matt a normal ammount
 ㅤ<a href="https://rentry.co/sucessor">rentry</a>
 
 <details>
-    <summary>nomations</summary>
+    <summary>nominations</summary>
     @pt-hall-of-media @pt-awards @piddlesjet 
 </details>
 
