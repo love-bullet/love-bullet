@@ -15,9 +15,7 @@
 <td width="55%" align="center" valign="middle">
 
 ᘓ︵ᯠ ⑅ ᯄ
-
 <br><br>
-
 nanaㅤ⸸ㅤmailㅤʰᵉ ᵃⁿʸ
 
 16↑ㅤsx9w8ㅤ964
