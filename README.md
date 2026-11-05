@@ -22,7 +22,7 @@ nana ⸸ mail ʰᵉ ᵃⁿʸ
 
 <a href="https://rentry.co/sucessor">rentry</a> <a href="https://rentry.co/dva6wdas">extended</a>
 
-<a href="https://github.com/5uguru">@</a>5uguru <a href="https://github.com/retrobive>@</a>retrobive ~
+<a href="https://github.com/5uguru">@</a>5uguru <a href="https://github.com/retrobive">@</a>retrobive ~
 
 <br><br>
 
