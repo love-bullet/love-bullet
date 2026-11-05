@@ -17,8 +17,7 @@
 ᘓ︵ᯠ ⑅ ᯄ
 
 <br><br>
-nana ♱ mail 
-ʰᵉ ᵃⁿʸ
+nana ⸸ mail ʰᵉ ᵃⁿʸ
 
 
 <a href="https://rentry.co/sucessor">rentry</a> <a href="https://rentry.co/dva6wdas">extended</a>
