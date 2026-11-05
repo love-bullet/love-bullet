@@ -32,7 +32,7 @@ nanaㅤ⸸ㅤmailㅤʰᵉ ᵃⁿʸ
 
 <details>
 <summary>nominations</summary>
-<a href="https://github.com/pt-hallf-of-media">@pt-hallf-of-media</a>
+<a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a>
 <a href="https://github.com/pt-awards">@pt-awards</a>
 <a href="https://github.com/piddlesjet">@piddlesjet</a>
 </details>
