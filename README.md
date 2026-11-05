@@ -31,7 +31,7 @@ nanaㅤ⸸ㅤmailㅤʰᵉ ᵃⁿʸ
 <br>
 
 <a href="https://github.com/5uguru">5uguru</a>ㅤ<a href="https://github.com/retrobive">retrobive</a> ~
-
+<br><br>
 </td>
 </tr>
 </table>
